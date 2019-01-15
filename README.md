@@ -5,5 +5,5 @@ Deze is in Genk op de T2 campus
 ik ben roy en zit bij Geert in de les, tuut tuut
 
 
-[](https://i.imgur.com/jC3hs3j.png)
-(https://i.imgur.com/jC3hs3j.png)
+[logo](https://i.imgur.com/jC3hs3j.png)
+
