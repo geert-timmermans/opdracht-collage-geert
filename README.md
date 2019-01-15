@@ -5,3 +5,6 @@ Deze is in Genk op de T2 campus
 Mijn naam is Katrien
 Ik volg ook les bij Becode.org
 Ook in Genk op de T2 campus
+
+
+#https://bit.ly/IqT6zt
